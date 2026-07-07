@@ -1,4 +1,4 @@
-Looking for a smarter way to trade and save? **Blue Guardian** is a prop trading firm that provides funded trading accounts, structured evaluations, and scaling opportunities designed to help traders grow with discipline and consistency. You can now get an **exclusive 40% discount** by using the promo code: **SHINY** when you register or purchase a challenge.
+Looking for a smarter way to trade and save? **Blue Guardian** is a prop trading firm that provides funded trading accounts, structured evaluations, and scaling opportunities designed to help traders grow with discipline and consistency. You can now get an **exclusive 40% discount** by using the promo code: **SHINY** when you register or purchase a challenge!
 
 💎 **Why Choose Blue Guardian?**
 Blue Guardian is known for its trader-focused rules, transparent funding process, and flexible account structures that support both beginners and advanced traders aiming to scale effectively.
